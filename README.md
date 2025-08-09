@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @TarikaTheHorse
+- 👋 Hi, I’m @AristocraticArietta!
 - 👀 I’m interested in webpage development!
 - 🌱 I’m currently learning the AHA stack!
 
